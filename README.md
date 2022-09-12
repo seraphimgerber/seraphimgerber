@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @seraphimgerber
+- 👀 I’m interested in ... school
+- 🌱 I’m currently learning ... school
+- 💞️ I’m looking to collaborate on ... school
+- 📫 How to reach me ... school
